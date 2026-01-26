@@ -1,1 +1,1 @@
-I like AI.
+Selling AI to people.
