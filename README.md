@@ -1,1 +1,1 @@
-Selling AI to people.
+Let's do it.
